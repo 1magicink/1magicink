@@ -3,6 +3,9 @@
 - 🌱 I’m currently a creating a episode on CSS/HTML animation...
 - 💞️ I’m looking to collaborate with anyone interested in making beautiful things...
 - 📫 How to reach me ...
+- tiktok.com/@1magic_ink
+- https://youtube.com/@1magicink
+- instagram:@1magicink
 
 
 
